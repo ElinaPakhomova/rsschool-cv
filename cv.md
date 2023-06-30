@@ -2,7 +2,7 @@
 
 ## Contacts
 
-* **Phone:** +79266085931
+* **Phone:** +7926*******
 * **Email:** elinarizahanova@gmail.com
 * **Discord:** Elina(@ElinaPakhomova)
 
